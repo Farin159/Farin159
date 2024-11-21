@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Farinpiya.
-- 🌷 You can call my "Faye or Farin" for short
+- 🌷 You can call my "Faye" for short
 - 👀 I'm interested in drums, guitar, traveling, cooking, and baking.
 - 📫 How to reach me : https://www.linkedin.com/in/farinpiya-t
