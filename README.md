@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Farinpiya.
-- 🌷 You can call my "Farin" for short
+- 🌷 You can call my "Faye" for short
 - 👀 I'm interested in FinTech, Web3, Blockchain
 - 📫 How to reach me : https://www.linkedin.com/in/farinpiya-t
